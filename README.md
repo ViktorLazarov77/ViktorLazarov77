@@ -14,5 +14,4 @@ Here are some ideas to get you started:
 - 𝗙𝗼𝗹𝗹𝗼𝘄 𝗺𝗲╰┈➤
 - Instagram: https://www.instagram.com/vik_lazarov/
 - Facebook:  https://www.facebook.com/profile.php?id=100094070761565   
- I
 -->
