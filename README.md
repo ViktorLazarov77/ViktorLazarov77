@@ -5,8 +5,6 @@
 
 - 🌱 I’m currently know C# , little Python and Java.
 
-- 🤔 I’m looking for help with ...
-
 - 💪 I`m training kyokushin and home calisthenics.
 
 - 😄 Pronouns: He/Him.
